@@ -7,7 +7,7 @@ Vivo Flash Tool lets users flash firmware (stock ROMs), Recovery, Custom ROMs on
 
 
 
-## [🎉🚀✔Vivo Flash Tool](https://short-link.me/130Y5)
+## [🎉🚀✔Vivo Flash Tool](https://alitech.click/dl/)
 
 
-## [🎉🚀✔Vivo Flash Tool ](https://short-link.me/130Y5)
+## [🎉🚀✔Vivo Flash Tool ](https://alitech.click/dl/)
